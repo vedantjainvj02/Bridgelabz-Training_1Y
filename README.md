@@ -1,1 +1,1 @@
-# Bridglabz-Training_1Y
+# Bridgelabz-Training_1Y
